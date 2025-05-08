@@ -7,13 +7,11 @@
 
 - 🌱 I’m currently learning **Frameworks, programming language and videogames**
 
-- 💬 Ask me about **videogames and work out.**
+- 💬 Ask me about **Work out.**
 
 - 📫 How to reach me **aldemarcatanocardona@gmail.com**
 
-- 📄 Know about my experiences [Actually, I study in the "Universidad católica de Colombia](Actually, I study in the "Universidad católica de Colombia)
-
-- ⚡ Fun fact **I think I am amazing**
+- 📄 Know about my experiences [Actually, I study in the "Universidad católica de Colombia]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
